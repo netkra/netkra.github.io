@@ -1,1 +1,0 @@
-# netkra.github.io
